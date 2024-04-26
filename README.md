@@ -1,4 +1,4 @@
-![Universidad de América](https://www.google.com/search?sca_esv=678f334ebb2e9f3d&q=uamerica&uds=AMwkrPt94q4_YZEgas_DfQYD0xIjBP602SDf_k0UIqKJWdtmgtFv741wwExXqWDBjeXUDX-Md49P8kF0F25pUzuZl7o_RPxP_jtRA64fAa72lq4dcbWJaIF5I6ot0-x3boja14rVMiGZQoqMKNTBatUcBuMs6JDw3EM9yDp7t-1kLeRgSBJl-sFRaE3zSAbqvOOa5_r8jAmZSDErKuIvdimhBcp_CnsC0UY5Pr1wXotqWkd-aRnhtyaP-TeQPn2x0PU2LU6LtvaojVIeM91nwvNu0OxttY6oM8HqbazNHikx-LdPKkCnES8&udm=2&prmd=ivsnmbtz&sa=X&ved=2ahUKEwiU2b-j8N6FAxUkTDABHSsUAakQtKgLegQIGBAB&biw=1366&bih=599&dpr=1#vhid=F51QgrVYQDCzdM&vssid=mosaic)
+![Universidad de América](https://elempleo.blob.core.windows.net/empresasprd/60964.gif)
 
 FACULTAD DE CIENCIAS ECONOMICAS Y CONTABLES PROGRAMA DE ESTADISTICA Y CIENCIA ACTUARIAL
 # DETECCIÓN TEMPRANA DEL RIESGO DE ABANDONO DE CLIENTE DE UNA COMPAÑÍA DE TELECOMUNICACIONES
